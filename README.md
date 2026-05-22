@@ -190,7 +190,7 @@ The Power BI dashboard covers:
 
 **Neha** — Data Analyst | Passionate about turning data into decisions.
 
-📍 Doha, Qatar | 🔗 [LinkedIn](https://linkedin.com/in/yourprofile) | 📧 nehakapoor213001@gmail.com
+📍 Doha, Qatar | 🔗 [LinkedIn](https://www.linkedin.com/in/neha-sammi-kapoor/) | 📧 nehakapoor213001@gmail.com
 
 ---
 
